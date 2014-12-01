@@ -16,7 +16,9 @@
 
 ### § 2 Vereinszweck
 
-1. Zweck des Vereins ist die Förderung von Kultur, speziell die Auseinandersetzung mit Theater sowie die Weiterbildung der Vereinsmitglieder.
+1. Zweck des Vereins ist die Förderung von Kunst und Kultur, speziell die Auseinandersetzung mit Theater.
+
+    Der Verein verfolgt ausschließlich und unmittelbar gemeinnützige Zwecke im Sinne des Abschnitts "Steuerbegünstigte Zwecke" der Abgabenordnung.
 
     Der Satzungszweck wird insbesondere durch ein breitgefächertes Workshop-Angebot in verschiedenen Sparten verwirklicht, das der Erweiterung der Kommunikationskompetenzen durch theaterpädagogische Methoden dient.
 
@@ -26,7 +28,7 @@
 
 ### § 3 Selbstlosigkeit
 
-Die Körperschaft ist selbstlos tätig; sie verfolgt nicht in erster Linie eigenwirtschaftliche Zwecke. Mittel der Körperschaft dürfen nur für die satzungsmäßigen Zwecke verwendet werden. Die Mitglieder erhalten in ihrer Eigenschaft als Mitglieder keine Zuwendungen aus Mitteln der Körperschaft.
+Die Körperschaft ist selbstlos tätig; sie verfolgt nicht in erster Linie eigenwirtschaftliche Zwecke. Mittel der Körperschaft dürfen nur für die satzungsmäßigen Zwecke verwendet werden. Die Mitglieder erhalten keine Zuwendungen aus Mitteln der Körperschaft.
 
 Es darf keine Person durch Ausgaben, die dem Zweck der Körperschaft fremd sind, oder durch unverhältnismäßig hohe Vergütungen begünstigt werden.
 
