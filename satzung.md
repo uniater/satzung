@@ -18,11 +18,11 @@
 
 1. Zweck des Vereins ist die Förderung von Kunst und Kultur, speziell die Auseinandersetzung mit Theater.
 
-    Der Verein verfolgt ausschließlich und unmittelbar gemeinnützige Zwecke im Sinne des Abschnitts "Steuerbegünstigte Zwecke" der Abgabenordnung.
+2. Der Verein verfolgt ausschließlich und unmittelbar gemeinnützige Zwecke im Sinne des Abschnitts "Steuerbegünstigte Zwecke" der Abgabenordnung.
 
-    Der Satzungszweck wird insbesondere durch ein breitgefächertes Workshop-Angebot in verschiedenen Sparten verwirklicht, das der Erweiterung der Kommunikationskompetenzen durch theaterpädagogische Methoden dient.
+3. Der Satzungszweck wird insbesondere durch ein breitgefächertes Workshop-Angebot in verschiedenen Sparten verwirklicht, das der Erweiterung der Kommunikationskompetenzen durch theaterpädagogische Methoden dient.
 
-    Auch soll das kulturelle Leben der Hochschulstadt Potsdam bereichert werden, indem es regelmäßige Aufführungen, sogenannte Workshop-Präsentationen geben wird. Weiterhin wird den Mitgliedern des Vereins eine Plattform gegeben, auf und hinter der Bühne tätig zu werden. Sie werden organisatorisch und inhaltlich-künstlerisch bei der Umsetzung eigener Projekte unterstützt und beraten.
+4. Auch soll das kulturelle Leben der Hochschulstadt Potsdam bereichert werden, indem es regelmäßige Aufführungen, sogenannte Workshop-Präsentationen geben wird. Weiterhin wird den Mitgliedern des Vereins eine Plattform gegeben, auf und hinter der Bühne tätig zu werden. Sie werden organisatorisch und inhaltlich-künstlerisch bei der Umsetzung eigener Projekte unterstützt und beraten.
 
 
 
